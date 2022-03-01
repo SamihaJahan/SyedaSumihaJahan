@@ -1,5 +1,5 @@
 # SyedaSumihaJahan
-## Assalamu Alaikum, I'm Syeda 
+## Assalamu Alaikum, I'm Syeda Sumiha Jahan
 ### SQA Enginner 
 
 ## Skils
